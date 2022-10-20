@@ -7,8 +7,7 @@
 
 - 📫 Contact address **246razia@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/folders/1uJbav8JBCIYXuqyuLx8omeeU_4z2n3u9][(https://drive.google.com/drive/folders/1uJbav8JBCIYXuqyuLx8omeeU_4z2n3u9)
-](https://drive.google.com/drive/folders/1uJbav8JBCIYXuqyuLx8omeeU_4z2n3u9)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mWkJMcqFwdkAMuCFqoCxgxB4wV8YdHtQ/view?usp=sharing]
 - ⚡ Fun fact **I think I am cool person.**
 
 <h3 align="left">Connect with me:</h3>
